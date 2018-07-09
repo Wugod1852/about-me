@@ -1,1 +1,1 @@
-# about-me
+This was my about me my hobbies & what i like to do
